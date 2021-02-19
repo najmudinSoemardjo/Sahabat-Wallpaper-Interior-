@@ -28,7 +28,9 @@ wallpaper 5
 
 wallpaper 6
 
-![IMG-20210218-WA0043](https://user-images.githubusercontent.com/79307752/108489259-ec1e3280-72d3-11eb-87ae-8e0bf603237d.jpg)
+![IMG-20210218-WA0053](https://user-images.githubusercontent.com/79307752/108489984-cc3b3e80-72d4-11eb-9317-fd2b505c1baa.jpg)
+
+
 
 walpaper 7
 
